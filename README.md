@@ -31,4 +31,4 @@
 
 ![Img](photo_2023.jpg)
 
-Всё подробно можно посмотреть в [видео](https://drive.google.com/file/d/1hHKBEeNKF9OuICCbgbJQdRHFIkht-On9/view?usp=drivesdk)
+О вышеперечисленное процессах подробно в [видео](https://drive.google.com/file/d/1hHKBEeNKF9OuICCbgbJQdRHFIkht-On9/view?usp=drivesdk)
